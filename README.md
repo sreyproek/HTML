@@ -9,7 +9,7 @@ Name : Chhorn sreyproek
 
 Sex : female
 
-Date of Birale : 07 july 2004
+Date of Birale : 03 july 2004
 
 Place of Birth Address : thmey village, Svay Dangkom Commune, Siem Reap district, Siem Reap province.
 
